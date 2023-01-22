@@ -1,2 +1,2 @@
 # Notes
-My notes  for the metaverse
+Some notes for reaserch etc...
